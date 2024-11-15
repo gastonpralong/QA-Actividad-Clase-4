@@ -1,0 +1,1 @@
+En la carpeta e2e, en la carpeta ACTIVIDAD CLASE 4 se encuentra la misma para la asistencia. 
